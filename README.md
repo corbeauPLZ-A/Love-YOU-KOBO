@@ -1,9 +1,11 @@
-# hii Welcome back EMU🍬🧁
-![IMG_20251104_134805](https://github.com/user-attachments/assets/fbc5c066-86d7-4ae3-bc1b-74791abb6a31)
-its wonderhoy emu | lm’keisha♥
-lts fandom: crk UMA ptn hololive YOAI😃
-lts fav: r1999 hi3 WUWA orv 
-music: KDH, hololive, EMU PJSK
-![IMG_20250930_220946](https://github.com/user-attachments/assets/dd0879af-59f8-4f33-a924-8e637e58526c)
-![IMG_20241217_141901](https://github.com/user-attachments/assets/20aa4842-9aad-4b55-8507-2991abd85e02)
-THANK YOU ME♥ pony town friends pokiee!!! ^_^~!
+![IMG_20251107_110425](https://github.com/user-attachments/assets/b089a6ae-8336-4f72-8d4a-abd60bfd468e)
+Hi Its YURI from pjsk🧁🍬 & 🥝🌷
+![IMG_20251107_110408](https://github.com/user-attachments/assets/f292a6b3-033e-4239-8698-e37c566a565e)
+Hi hehe ara~ara~ from ao-kun miss you...
+![IMG_20251107_110447](https://github.com/user-attachments/assets/a0ab7626-e4bc-4abf-86d8-b5f76aefa698)
+![IMG_20251107_110501](https://github.com/user-attachments/assets/37b58954-665a-4592-aaee-bc3a13c5f578)
+oh hello nice meet <3 NIJI!!!
+![IMG_20250803_121517](https://github.com/user-attachments/assets/3c19f7c8-7e3a-4c92-821e-fa2dfbd6bd74)
+HSHSHSJJJSG OMG MY HOLOSTARS OSHI!!!
+![IMG_20241205_221451](https://github.com/user-attachments/assets/4f2f6edc-7f43-43a7-ad42-050da7f5743c)
+THANK YOU MY OC🌹❤️!?
